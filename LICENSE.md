@@ -1,4 +1,4 @@
-# 
+# premium nft trading bot | stop-loss + whitelist-bypass offers the most advanced nft trading bot, with stop-loss and whitelist-bypass. Ideal for professional NFT traders and
 
 
 
